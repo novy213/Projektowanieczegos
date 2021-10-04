@@ -1,0 +1,2 @@
+# Projektowanieczegos
+nie czytaj 
